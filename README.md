@@ -1,2 +1,2 @@
-Software engineer with university degree, experience in different programming languages, technologies and skills. Passion and love for developing quality software.
+Software engineer with master's degree, experience in different programming languages, technologies and skills. Passion and love for developing quality software.
 Ease when working in a team and with enormous soft skills. Experience developing software in professional teams from England and United States as well as agile methodologies, version control systems, algorithms, data structures, object-oriented programming, among others.
